@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Blaze-galactix (my name is Astra)
 - 👀 I’m interested in ... C, C++, Python and HTML. overall beginner projects and advancing my skills right now
 - 🌱 I’m currently learning ... C++
-- 💞️ I’m looking to collaborate on ...
+- 💞️ I’m looking to collaborate on ... IDK I'M STILL PRETTY NEW
 - 📫 How to reach me ...  the astral plane is an option
 - 😄 Pronouns: ... They/Them
 - ⚡ Fun fact: ... you can't catch me
